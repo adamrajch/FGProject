@@ -1,3 +1,2 @@
-# yeetmcgains
-# yeetmcgains
+
 # gainsproject
